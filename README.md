@@ -1,15 +1,15 @@
 ## Mi presentación
 ***
 
-Buenas, soy Tomás Fiestas  ( mi apellido 100% real ), actualmente estoy cursando las materias de segundo año e intentando no dejarlas todas.
+Buenas, soy Tomás Federico Fiestas Escubilla ,mi legajo es 203.619-8 y actualmente estoy cursando las materias de segundo año e intentando no dejarlas todas.
 
 ***
 
 ### Sobre mi:
-- Mis amigos me dicen party o parties
+- Mis amigos me dicen party/parties
 - Me entusiasma mucho el tema de la ciberseguridad y proteccion de la privacidad de los datos
 - Creo firmemente que la milanesa napolitana con fritas es la mejor comida del mundo
-- Tengo 2 perras, Kaila y Renata y se odian mutuamente
+- Me critican mucho por ver peliculas en resumen pero es adictivo
 - Estoy empezando un emprendimiento de laser en maderas, tiro el chivo
 
 Quiero empezar a leer un libro para agarrar el habito de leer, asi que acepto cualquier recomendacion😋
